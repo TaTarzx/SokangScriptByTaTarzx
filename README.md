@@ -1,0 +1,2 @@
+# SokangScriptByTaTarzx
+KuyDum
